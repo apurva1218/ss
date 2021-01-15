@@ -1,0 +1,10 @@
+https://webfeeds.brookings.edu/%7E/t/0/0/%7Esurvivingspirits.com
+https://www.sbnation.com/users/survivingspirits1212
+https://lionofviennasuite.sbnation.com/users/survivingspirits1212
+https://cgl.ethz.ch/disclaimer.php?dlurl=https%3A%2F%2Fsurvivingspirits.com
+https://nutritiondata.self.com/facts/recipe/1304991/2?mbid=HDFD&trackback=https%3A%2F%2Fsurvivingspirits.com
+https://refer.ccbill.com/cgi-bin/clicks.cgi/http:/?CA=928498&PA=1458253&HTML=https%3A%2F%2Fsurvivingspirits.com
+https://refer.ash1.ccbill.com/cgi-bin/clicks.cgi?CA=933914&PA=1785830&HTML=https%3A%2F%2Fsurvivingspirits.com
+https://club.panasonic.jp/member/terms/?siteId=B1&returnURL=https%3A%2F%2Fsurvivingspirits.com
+https://www.fhwa.dot.gov/reauthorization/reauexit.cfm?link=https%3A%2F%2Fsurvivingspirits.com
+https://www.canada.com/scripts/go.aspx?g=contests&n=knowitall_redirect_vancouversun&u=https%3A%2F%2Fsurvivingspirits.com
