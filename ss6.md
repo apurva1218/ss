@@ -1,0 +1,10 @@
+https://sites.wpp.com/annualreports/2007/exitpage.asp?url=https%3A%2F%2Fsurvivingspirits.com
+https://www.celticsblog.com/users/survivingspirits1212
+https://www.behindthesteelcurtain.com/users/survivingspirits1212
+https://www.goldenstateofmind.com/users/survivingspirits1212
+https://www.blueletterbible.org/tools/redirect.cfm?Site=https%3A%2F%2Fsurvivingspirits.com
+https://register.scotland.gov.uk/subscribe/widgetsignup?url=http%3A%2F%2Fsurvivingspirits.com
+https://register.scotland.gov.uk/subscribe/widgetsignup?url=https%3A%2F%2Fsurvivingspirits.com
+https://legacy.aom.org/verifymember.asp?nextpage=https%3A%2F%2Fsurvivingspirits.com
+https://www.netsdaily.com/users/survivingspirits1212
+https://www.bigblueview.com/users/survivingspirits1212
