@@ -1,0 +1,10 @@
+https://www.brewhoop.com/users/survivingspirits1212
+https://adapi.now.com/ad/api/act.ashx?a=2&sc=3490&s=30000219&l=1&t=0&c=0&u=https%3A%2F%2Fsurvivingspirits.com%2F
+https://www.minorleagueball.com/users/survivingspirits1212
+https://www.federalbaseball.com/users/survivingspirits1212
+https://www.thefalcoholic.com/users/survivingspirits1212
+https://www.canalstreetchronicles.com/users/survivingspirits1212
+https://www.maizenbrew.com/users/survivingspirits1212
+https://www.mlbdailydish.com/users/survivingspirits1212
+https://www.overthemonster.com/users/survivingspirits1212
+https://www.royalsreview.com/users/survivingspirits1212
